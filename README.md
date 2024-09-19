@@ -4,7 +4,7 @@ https://www.dropbox.com/scl/fi/7mcn4hvlmt2btenqgzlyd/fj_meto.zip?rlkey=uiarlcb3y
 ربع 
 https://www.dropbox.com/scl/fi/squghv9li22zh7nnahx1q/landsg.zip?rlkey=h2n404l59kqzcrlmok4w1fwku&st=abtxvop9&dl=1
 
-سيرا 15
+GMC 15
 https://www.dropbox.com/scl/fi/spsyvkrj38ranh5etimbr/GMC-Sierra-2017-2015-V1.2.zip?rlkey=5gnne4vsbch54ewqyyy6706m5&st=yzejooeq&dl=1
 
 التيما 23-24
