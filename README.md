@@ -1,5 +1,5 @@
 اف جي 
-https://www.dropbox.com/scl/fi/xnem4qiqk0qa2o3egnmqu/landsg.zip?rlkey=gf1igowyh1lt1izycys7gh4qb&st=uq5bp50b&dl=0
+https://www.dropbox.com/scl/fi/xnem4qiqk0qa2o3egnmqu/landsg.zip?rlkey=gf1igowyh1lt1izycys7gh4qb&st=uq5bp50b&dl=1
 
 ربع 
 https://www.dropbox.com/scl/fi/xnem4qiqk0qa2o3egnmqu/landsg.zip?rlkey=gf1igowyh1lt1izycys7gh4qb&st=uq5bp50b&dl=1
